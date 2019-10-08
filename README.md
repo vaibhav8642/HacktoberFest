@@ -1,8 +1,34 @@
 # HacktoberFest
 
+Shailesh participated here.
+
+subham participated here.
+
+Dweep participated here.
+
+Aman Thakur participated here.
+
+sushil kumar participated here.
+
+nikhil participated here.
+
+ishan participated here.
+
+Priya participated here. 
+
+Pranav participated here.
+
+Akshat participates here.
+
+Purushotam participated here.
+
 rishabh rathore
 
 Shailesh participated here.
+
+Snehasis participated here.
+
+Anuranjan participated here.
 
 Vaibhav participated here.
 
